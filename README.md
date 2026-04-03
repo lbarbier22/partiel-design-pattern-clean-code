@@ -1,0 +1,1 @@
+# PARTIEL 5INFO
